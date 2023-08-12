@@ -6,7 +6,7 @@
   Degrees/Certifications/Badges:
 </h2>
   <b>
-    
+    Pursuing Bachelor's Degree in Cybersecurity at Augusta University
   </b>
   
 <h2>
